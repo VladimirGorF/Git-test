@@ -7,7 +7,5 @@ Page of the game: https://shop-gvf.site/game.html
 
 Enjoy!
 
-
-Changes from local repos.
-
+Total changes!!!!
  
