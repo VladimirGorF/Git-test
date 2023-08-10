@@ -1,1 +1,1 @@
-Readme of remote repos
+Readme of remote repository
