@@ -7,9 +7,11 @@ Page of the game: https://shop-gvf.site/game.html
 
 Enjoy!
 
-Total changes!!!!
+
 
 
 
 Total changes more!!!
+
+Comments
  
