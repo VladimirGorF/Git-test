@@ -5,7 +5,7 @@ You can see the site in web: https://shop-gvf.site/
 
 Page of the game: https://shop-gvf.site/game.html
 
-Enjoy! Enjoy!
+
 
 Changes 22222 in main branch here!Changes 22222 in main branch here!Changes 22222 in main branch here!Changes 22222 in main branch here!Changes 22222 in main branch here!Changes 22222 in main branch here!Changes 22222 in main branch here!
 
